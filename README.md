@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Radouane Mouafik
+Hi, I'm Radouane Mouafik, computer science student at 1337 coding school.
 
 
 ## 🌐 Socials:
